@@ -1,1 +1,1 @@
-## [księgowa.mielec.pl stara strona wwww](https://www.ksiegowa.mielec.pl).
+## [księgowa.mielec.pl stara strona www](https://www.ksiegowa.mielec.pl).
